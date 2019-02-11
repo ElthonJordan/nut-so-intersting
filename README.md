@@ -1,2 +1,6 @@
 # nut-so-intersting
-trash :-)
+
+trash!
+
+this changes nothing my friend.
+what comes around,goes around.
